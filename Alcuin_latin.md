@@ -92,30 +92,15 @@ Cuius ipse Salvator in Evangelio virtutem ostendit, dicens: _Penitentiam agite, 
 
 Legitur in litteris divinitus inspiratis dictum: _Fili, ne tardes converti ad Deum {Dominum}, quia nescis, quid futura pariat dies_ (Eccli. V, 8). Qui tardat converti, periculum facit anima suae, quia _mors non tardat_ (Eccli. XIV, 12). Quae si tardantem converti inveniet, ad tormenta deducit eum. Dissoluta et paralytica {periculosa} cogitatio est, de crastina cogitare conversione, et hodiernam negligere. Quid tu peccator {converti} dissimulas, et non metuis, ne tibi mors repentina subripiat diem conversionis? Nonne homines subito moriuntur? Si bonum est peccata dimittere, et ad Deum converti, cito fiat. Deus tibi promittit remissionem convertenti a peccatis, securitatem tibi non promisit diu vivendi. {Lege prophetas, lege Apostolum, et vide si  tibi promissa sit hora aut dies.} ldeo convertat se citius unusquisque ad Deum, et cum invenerit eum, derelinquat impius viam suam. Si subito intrat dies extremus, perit dilatio, et restat damnatio. Perire non vis, redi ad Deum, et vives. Noli desperare [Ms., peccando sperare] de venia peccatorum, nec de vita longiori confidere. Convertere ergo, et poenitentiam age. Cras, inquies, convertam. Quare non hodie? Quid mali, dicis, si cras dicam? Quid mali, si hodie? Forte dicis: Longa erit vita mea. Dicam, si longa sit {erit}, bona sit; si brevis, et ipsa bona sit. Quis ferat malum longum? Prandium longum non vis habere malum, et vitam longam vis habere malam? Villam emis: bonam desideras. Uxorem vis ducere: bonam quaeris, filios tibi nasci vis : bonos optas. Et ut etiam de rebus vilissimis loquar, caligas emis, en non vis malas. Et vitam amas malam? Quid te offendit vita tua, quam solam vis malam, ut inter omnia bona {tua} solus sis malus? _Neque tardes converti ad Dominum, et ne differas de die in diem_ (Eccli. v, 8). Verba Dei sunt, non mea. Non a me haec audisti, sed ego tecum audio a Domino. Forte respondes: Cras, cras. O vox corvina! Corvus non redit ad arcam, columba redit. Si enim tunc vis paenitentiam agere quando peccare non potes, peccata te dimiserunt, non tu illa. Satis alienus a fide est, qui ad agendam poenitentiam tempus senectutis exspectat. Metuendum est, ne dum sperat misericordiam, incidat in judicium. Neque enim tunc veniam inveniet, qui modo aptum veniae tempus perdidit. Ibi iam a Deo non potest mereri quod petit, qui hic noluit audire quod jussit. Qui tempus paenitentiae datum {sibi} negligit, frustra ante tribunal Christi preces effundit. Festinare debet ad Deum convertendo unusquisque, dum potest, ne si, dum potest, noluerit, omnino cum tarde voluerit, non possit.  
 
+## CAPUT XV
+### De timore Domini.  
 
------------
+> Hoc caput pars est sermonis 97 S. Augustini
 
+_Initium sapientie timor Domini_ (Psal. CX, 10). Magna est cautela peccati Deum semper presentem {Dei presentiam} timere. Qui perfecte Deum timet, diligenter se a peccatis custodit. _Timenti Deum ín novissimo die bene erit, et merces eius in  eternum permanet_ (Eccli. I, 45). Qui erubescit in conspectu hominis peccare, quanto magis debet erubescere in conspectu Dei iniquitatem agere, qui non solum opera, sed et corda considerat. Qui timore sancto Deum metuunt, inquirunt quae bona placita sunt illi. Alius est timor filiorum, alius est timor servorum. Servi enim propter tormenta dominos timent, filii vero propter amorem patres timent. Si filii Dei sumus, timeamus eum ex charitatis dulcedine, non de timoris amaritudine. Homo sapiens in omnibus operibus suis metuit Dominum, sciens se nunquam eius praesentiam fugere posse, sicut Psalmista Deo dicit: _Quo ibo a spiritu tuo, et quo a facie tua fugiam_ (Psal. CXXXVIII, 7)? Iterum: _Quia neque ab Oriente, neque ab Occidente_ (Psal. LXXIV, 7) subauditur, patet locus fugiendi Deum. _Qui timet Deum, accipiet doctrinam eius, et qui vigilaverint in mandatis illius, invenient benedictionem sempiternam_ (Eccli. XXXII, 18). _Timeniis Deum beata est anima_ (Eccli. XXXIV, 47), et a tentatione diabolica tuta remanet. _Beatus homo, qui semper est pavidus_ (Prov. XXVIII, 14), et cui donatum est Dei timorem semper ante oculos habere. Qui timet Dominum, recedit ab itinere pravo, et ad virtutis semitam vias suas dirigit. Timor Domini repellit peccata, et adjicit virtutes. Timor cautum facit hominem et sollicitum, ne peccet. Ubi vero timor Domini non est, ibi dissolutio vitae est. Quisquis Deum in prosperis non timet, vel {saltem} in adversis refugiat ad illum, qui flagellat, ut sanet. _Beatus vir, qui timet, Dominum, in mandatis eius cupit nimis_ (Psal. CXI, 1).  Timore dei timorem gehennae expellit. Sic {ergo} timeamus Deum, ut diligamus eum; quia _perfecta charitas foras mittit timorem servilem_ (I Joan. iv, 18).  
 
-D mandatis. ejus cupit nimis (Psal. cxi, 4). Timor Dei  
+------
 
-  
-
-* CAPUT XV. De timore Domini.  
-
-Initium. sapientie timor Domini (Pgal. cx, 10). Magna est cautela peccati Deum semper presentem [M»., Dei presentiam] timere. Qui perfecte Deum ümet, diligenter se & peccatis custodit. Timenti Deum ín novissimo die bene erit, et merces ejus in  
-
-B eternum. permanet. (Eccli. 1, 45). Qui erubescit in conspectu hominis peccare, quanto magis debet eru- hescere in conspectu Dei iniquitatem agere, qui non solum opera, sed et corda considerat. Qui timose sancto Deum metuunt, inquirunt qu: bona placita suntilli, Alius est timor filiorum, alius est timor servorum. Servi enim propter tormenta dominos ti- ment, filii vero propter amorem patres timent. Si filii Dei sumus, timeamus eum ex charitatis dulce- dine, non de timoris amaritudine. Homo sapiens in omnibus operibus suis metuit Dominum, sciens se nunquam ejus presentiam fugere posse, sicut Psal- mista Deo dicit : Quo ibo a spiritu tuo, et quo a facie tua. fugiam (Psal. cxxxvin, 7)? Iterum : Quia me-  
-
-
- C subauditur, patet locus fugiendi Deum. Qui imet  
-— qite ab Oriente, neque ab. Occidente (Psal. vxxwv, 1),
-
-
-
-Deum, accipiet doctrinam ejus , et qui vigilaserint in mandatis illius, invenient benedictionem sempiternam (Eccli. xxxu, 18). Timeniis Deum beata est anima (Eccli. xxxiv, 47), et a tentatione diabolica tuta re- manet. Beatus homo, qui semper est pavidus (Pror. xxvii, 14), et cui donatum est. Dei timorem semper ante oculos habere. Qui timet Dominum, recedit ab itinere pravo, et ad virtutis semitam vias suas diri- git. Timor Domini repellit peccata, et adjicit virta- tes. Timor cautum facit hominem et sollicitum, ne peccet. Ubi vero timor Domini non est, ibi dissolutio vite est. Quisquis Deum in prosperis non timet, yel [ Hs. sáliem] in adversis refugiat ad illum, qui fla- gellat, ut sanet. Beatus vir, qui timet. Dominum , in  
-
-
-ümorem gehennae expellit. Sic [ergo] timeamus Deum, ut diligamus eum ; quia perfecta charitas foras mittit timorem servilem (I Joan. iv, 18).  
 
 136 CAPUT xvi. De jejunio.  
 
